@@ -10,3 +10,4 @@ These are a few of my favorite things:
 - Coffee
 - Flowers (daisies)
 - Flour
+- Tea
